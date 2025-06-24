@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://hl389.pages.dev/">黑料网</a>
 
-点击访问：<a href="hhttps://cg49-9.pages.dev/">新17吃瓜网页版</a>
+点击访问：<a href="https://cg49-9.pages.dev/">新17吃瓜网页版</a>
 
 点击访问：<a href="https://cg08-1.pages.dev/">海角吃瓜</a>
 
